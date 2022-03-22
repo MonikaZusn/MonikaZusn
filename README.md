@@ -6,6 +6,7 @@ I’m looking to collaborate on new and exicitng projects. I'm keen to work with
 Reach out and say hi.
 
 [LinkedIn](https://www.linkedin.com/in/monika-zuscak/)
+
 [Instagram](https://www.instagram.com/)
 
 
